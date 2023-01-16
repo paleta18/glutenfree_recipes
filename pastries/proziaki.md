@@ -1,10 +1,10 @@
 ## Składniki
-* Kefir - 300ml
-* Schar Mehl Farine - 350ml
+* Kefir - 400ml
+* Schar Mehl Farine - 450ml
 * Soda - 1 łyżka stołowa kopiata
-* Sól - 1 łyżka stołowa płaska
+* Sól - 1 niepełna płaska łyżeczka do herbaty
 * Cukier 1.5 łyżki stołowej kopiatej
-* Mak - 100 ml
+* Mak - 70 ml
 * Guma Guar - poł łyżeczki do herbaty
 
 ## Przygotowanie
